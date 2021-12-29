@@ -36,4 +36,4 @@ I'm interested in working as a co-author (programmer) or paid programmer on a re
 
 #### Current Location: `Malé, Republic of Maldives`
 #### Email: `shahid@unibitsoftware.com`
-#### Phone: `(+960) 7654406`
+#### Phone: `(+880) 1521207008`
